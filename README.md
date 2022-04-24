@@ -1,5 +1,5 @@
-##[![Typing SVG](https://readme-typing-svg.herokuapp.com/?lines=WELCOME+TO+ദശമൂലം-ദാമു-AUTO-FILTER-BOT!;CREATED+BY+ALINSHAN!;A+SIMPLE+AUTOFILTER+BOT!;AUTO+FILTER+WITH+DOUBLE+BUTTON!;START+MESAGE+WITH+PIC!;AND+MORE+FEATURES!)
-</p>
+
+## ![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=WELCOME+TO+MANAVALAN+AUTO-FILTER-BOT!;A+SIMPLE+AUTOFILTER+BOT!;AUTO+FILTER+WITH+DOUBLE+BUTTON!;START+MESAGE+WITH+PIC!;AND+MORE+FEATURES)
 
 # 𝐂𝐋𝐈𝐂𝐊 𝐁𝐄𝐋𝐎𝐖 𝐈𝐌𝐀𝐆𝐄 𝐓𝐎 𝐃𝐄𝐏𝐋𝐎𝐘👇👇👇
 
